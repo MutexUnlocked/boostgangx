@@ -1,1 +1,1 @@
-# boostgangx
+# Boostgang Solar Flares
